@@ -2,7 +2,7 @@
 
 &nbsp;
 <br />
-_You have to solve this problems at the end of the day, that means 11:59:59 CST_
+Solve
 &nbsp;
 <br />
 &nbsp;
